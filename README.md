@@ -1,1 +1,1 @@
-# repozytorium---test
+# repozytorium w którym wykonuję zadania.
